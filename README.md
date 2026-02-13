@@ -82,8 +82,8 @@ I enjoy learning by building real projects, understanding how things work under 
 
 ## 🤝 Let's Connect
 
-* 💼 LinkedIn: *(add when ready)*
-* 📧 Email: *(optional)*
+* 💼 LinkedIn: https://www.linkedin.com/in/yael-duarte-030309yd/
+* 📧 Email: ry.duarte.g@gmail.com
 
 ---
 
